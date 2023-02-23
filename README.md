@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on projects, Startups, Games, UI Design, Frontend Development, WEB3, Web Development,
 - Database management.
 - 📫 How to reach me  at swagat.pandak@mavs.uta.edu
-Lets do Something big.
+
